@@ -1,3 +1,7 @@
+dhaiojdiajdjajdijaidjioajfijfia
+oshofhisfhasjfjsafjsaiod
+oihisoafjisjfios
+
 Hello this is my nano test file 
 Lets get to work 
 
